@@ -1,5 +1,5 @@
 # Home Remodeling and Custom Homes in Milwaukee and Southeast WI: Best Kitchen and Bathroom Remodelers in Milwaukee  
-
+<a title="Skkiemorani, CC0, via Wikimedia Commons" href="https://commons.wikimedia.org/wiki/File:Milwaukee_Kitchen_and_Bath_Renovation_Experts.jpg"><img width="512" alt="Milwaukee Kitchen and Bath Renovation Experts" src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Milwaukee_Kitchen_and_Bath_Renovation_Experts.jpg/512px-Milwaukee_Kitchen_and_Bath_Renovation_Experts.jpg?20250313191011"></a>
 ----
 ## **Table of Contents**  
 1. Introduction to Home Remodeling and Custom Homes  
@@ -62,7 +62,7 @@ The kitchen is the heart of the home. A well-designed kitchen enhances functiona
 
 ### **Why Remodel Your Bathroom?**  
 A bathroom remodel can turn an outdated space into a luxurious retreat, improving both comfort and home value.  
-
+<a title="Skkiemorani, CC0, via Wikimedia Commons" href="https://commons.wikimedia.org/wiki/File:Kitchen_%26_Bathroom_Remodeling_in_Brookfield,_WI.jpg"><img width="256" alt="Kitchen &amp; Bathroom Remodeling in Brookfield, WI" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Kitchen_%26_Bathroom_Remodeling_in_Brookfield%2C_WI.jpg/256px-Kitchen_%26_Bathroom_Remodeling_in_Brookfield%2C_WI.jpg?20250314165500"></a>
 ### **Our Bathroom Remodeling Services**  
 - Walk-in showers and freestanding tubs  
 - Heated floors and eco-friendly fixtures  
